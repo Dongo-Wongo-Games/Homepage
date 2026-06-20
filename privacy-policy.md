@@ -84,4 +84,4 @@ We may update this Privacy Policy from time to time. Updates will be posted on t
 
 Dongo Wongo Games LLC
 
-support@dongowongogames.com
+dongowongogames@gmail.com
